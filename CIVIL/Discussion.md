@@ -15,5 +15,16 @@
 ### Flood in 4000 BCE 
 ### Readings
   - Scoot Against the grain intro
+
+### Against the grain info --Scoot 
+  - draw prehistory 
+  - China first 2000 years 
+  - lays out his argument in the first chapter 
+  - use argriculture: grains 
+  - foods, using materials, what causes them to form these structure 
+  - what other things besides narratives 
+ 
+### Next week 
+  - Reading: 
   
   
