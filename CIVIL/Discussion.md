@@ -27,4 +27,20 @@
 ### Next week 
   - Reading: 
   
+### Egypt
+  - Palermo Stone 
+  - Containing 1st -5th dynasty 
+  - the dates about egyptian dynasties are pretty accurate
+  
+  - The Narmer Macehead and Related Objects
+    - 
+  -  WHAT A KING IS THIS: NARMER AND THE CONCEPT OF THE RULER
+    - 
+  - consolidatiion of power 
+  - Egyptian could trade with mesop
+  - 
+  
+  
+  
+  
   
