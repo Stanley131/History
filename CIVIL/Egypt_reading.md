@@ -14,5 +14,14 @@
   - trade with Nubia(Sudan) and Libya 
   - between 2686 BC and 525 BC (perisan conquest)， no fewer than 23 dynasties 
   - The first pyramid was a stepped stone structure furutal complex. 
+  - All royal before 1000BC, the pyramids were constructed in the desert 
+  - contemporary documents on papyrus show that Egyptian were skilled in architecture. 
+  - King Khufu: his massive pyramid : 150 meters and 500 ft
+  - Pharaoh were central to the egyptian state
+  - The old kingdom was collapsed after 5 centrury 
+  - **3 unification of Kingdoms**
+ ### why centralized ?
+  - cuz the Nile river places were good to survive, other places deserts 
+  
   
   
