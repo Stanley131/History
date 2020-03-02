@@ -28,4 +28,10 @@
     - The Sed festival (ḥb-sd, conventional pronunciation /sɛd/; also known as Heb Sed or 
       Feast of the Tail) was an ancient Egyptian ceremony that celebrated the continued rule of a pharaoh.  
  
-  
+# The Satire on the trades
+# The maxims of pathhotep 
+  - instruct his son to leadership 
+  - Social order of devine creatures 
+  - Ideological social order, social mobility--NO
+  - Labor slaves 
+  - 
