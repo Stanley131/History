@@ -34,6 +34,30 @@
 ### Change
   - Change, modification, variation—these themes describe the path of evolution from
     the first self-replicating molecules to fully modern humans of today.
+   - Biological Evolution: On the Origin of Species by Means of Natural Selection
+        - Darwin pointed out that all organisms produce more offspring than can survive 
+          and that the individuals that survive do so because of certain advantageous 
+          characteristics they possess.
+ ### Fundamentals of Achaeology 
+  - archaeology is the study of our human past, combining the themes of time and change,
+    using the material remains that have survived.
+  - Archaeology focuses on past human behavior and change in society over time.   
+    Archaeologists study past human culture across an enormous amount of time and
+    space—essentially, the last several million years and all of the continents except
+    Antarctica. In one sense, archaeology is the investigation of the choices that our
+    ancestors made as they evolved from the first humans to the historical present.
+  - Archaeology is also a detective story, a mystery far more complex and
+    harder to solve than most crimes. The clues to past human behavior are
+    enigmatic—broken, decomposed, and often missing. Piecing together these bits
+    of information to make sense of the activities of our ancestors is a challenge.
+  - Archaeology is usually situated in the social sciences or humanities in a 
+    university setting.
+  - enquiry. Prehistory refers to the time of humans before the written record placed us 
+    in history.
+  - Archaeological Sites are found by accident. 
+  - Physical and Chemical analysis of soil samples may provide information about the
+    origins of the deposits. 
+  - 
   
   
   
